@@ -1,3 +1,2 @@
-No code No pain
-experiment with amend
-thing
+No code – no pain.
+No pain – no gain :)
